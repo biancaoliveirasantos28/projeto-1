@@ -1,6 +1,6 @@
 # corinthians
 ## corinthians
-[vhjvkjvkjh](https://www.youtube.com/watch?v=9cIWcoQONfk)
+[hino do corinthians](https://www.youtube.com/watch?v=9cIWcoQONfk)
 
 - corinthians é o time do povo
 - tem a melhor torcida
