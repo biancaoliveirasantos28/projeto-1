@@ -13,7 +13,7 @@
 
 
 
-    _a torcida mais fiel_
+_a torcida mais fiel_
 
     
 <ing width="331" height="331" alt="image" src="https://github.com/user-attachments/assets/189df155-8ef7-42ec-89d6-807921149315" />
