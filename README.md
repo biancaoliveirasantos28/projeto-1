@@ -10,5 +10,7 @@
 
 
 **motivo da loucura do bando**
-   __a torcida mais fiel__
+
+
+   _ _a torcida mais fiel_ _
 <ing width="331" height="331" alt="image" src="https://github.com/user-attachments/assets/189df155-8ef7-42ec-89d6-807921149315" />
